@@ -6,4 +6,4 @@ first commit just saving file
 <br>
 호영 : 속초 부럽다
 <br>
-서진 : 나두 데려가잉
+서진 : 나두 데려가잉>.<
