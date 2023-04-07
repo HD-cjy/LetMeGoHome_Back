@@ -7,3 +7,5 @@ first commit just saving file
 호영 : 속초 부럽다
 <br>
 서진 : 나두 데려가잉>.<  
+<br>
+지오 : 난 12월에 일본 갈건뎅 히히
